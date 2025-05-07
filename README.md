@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI/Coding/Python
 - 💞️ I’m looking to collaborate on AI for Education/Science
 - 📫 You can reach me by wtqwad123@gmail.com
-- 😄 Pronouns: He/His
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I search for "Pronouns meaning in Github" 1 mins ago 
 
 <!---
